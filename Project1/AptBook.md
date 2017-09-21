@@ -1,0 +1,1 @@
+~Daily~Brush your teeth~2000~1~1~Daily~Take a bath~2020~5~13~Daily~Sleep~2057~8~25~Monthly~Go to dentist~2005~3~5~Monthly~Performance review~2008~2~7~Monthly~Call Mother~2017~5~10~One Time~Get wisdom teeth removed~2007~8~18~One Time~Meet K for coffee~2015~4~18~One Time~Waxing~2058~4~26
